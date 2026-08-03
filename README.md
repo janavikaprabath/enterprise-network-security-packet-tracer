@@ -193,7 +193,7 @@ Enterprise-Network-Configuration/
 
 **Janavika P U**
 
-Cybersecurity Intern
+Aspiring Cybersecurity Professional
 
 B.E. Computer Science and Engineering
 
